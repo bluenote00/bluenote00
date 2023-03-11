@@ -1,3 +1,4 @@
+![bluenote00](https://user-images.githubusercontent.com/118717795/224478709-b4d40c40-4640-48ef-9fc1-7c60b2a35640.png)
 
 
 #### Nice to meet you! 🐟
